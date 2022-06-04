@@ -1,5 +1,5 @@
 # Jasper-Coin
-Japer Coin is a new coin. Made by 353mss#0447 and My doggo jasper. (Also you get coins for free for a bit ;)  )
+Japer Coin is a new coin. Made by 353mss#0447 and My doggo jasper. I have about 3bil stock right now and giving some of it away soon! (Also you get coins for free for a bit ;)  )
 
 
 
